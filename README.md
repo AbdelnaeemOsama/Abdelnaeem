@@ -3,7 +3,7 @@
 - 👀 I’m interested in forntend 
 - 🌱 I’m currently learning html,css and javascript
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me Abdelnaeem osama
+- 📫 How to reach me naeemosama8@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
